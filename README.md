@@ -11,6 +11,7 @@
 ### Eurosport
 
 ## Reino Unido
+[LaLiga TV](https://talwan.makeup/es/laliga1.php)
 ### Sky Sports
-
+[Sky Sports Premier League](https://megadeportestv2.com/eventos?r=Ly9ncmVnb3JzYW1zYS5saWZlL29icmlnYWRvL2diL3NreXNwb3J0cHJlbWllci5waHA=)
 ### TNT Sports
